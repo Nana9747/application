@@ -1,1 +1,2 @@
-# application DEVELOPER B APK..
+ application DEVELOPER B APK..
+ADDING DEV A STORY
